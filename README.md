@@ -1,8 +1,8 @@
-# Drake Sucks :|
+# Drake Sucks :(
 
 I would rather listen to NAV he is my savior 🙏.
 
-## CLB is Trash :|
+## CLB is Trash :(
 
 ![image](https://pyxis.nymag.com/v1/imgs/9a4/2c3/054897d9d429262c47e79af7292674ceb4-10-drake-future-video.rsquare.w1200.jpg)
 
