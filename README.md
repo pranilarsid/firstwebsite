@@ -1,37 +1,19 @@
-## Welcome to GitHub Pages
+# Drake Sucks :|
 
-You can use the [editor on GitHub](https://github.com/pranilarsid/firstwebsite/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+I would rather listen to NAV he is my savior 🙏.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+## CLB is Trash :|
 
-### Markdown
+![image](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.reddit.com%2Fr%2FKanye%2Fcomments%2Fphegbr%2Fclb_is_trash_imo_but_i_dont_hate_drake_lol%2F&psig=AOvVaw2mrkkE09jpIQKGmIiqXOL4&ust=1633098624607000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCNjHuM70pvMCFQAAAAAdAAAAABAD)
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+I would rather listen to a cow mooing for hours on end than listen to this hot garbage. The only good part of the album was Drake not singing. His features carried and he will never as lit as NAV.
 
-```markdown
-Syntax highlighted code block
+### NAV is Better :)
 
-# Header 1
-## Header 2
-### Header 3
+It's not even up for debate Navraj is better.
 
-- Bulleted
-- List
+![Image](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.kuvo.org%2Fevent%2Fnav-summit%2F&psig=AOvVaw1pepdlgrJ3i1lvcsErKFQx&ust=1633098733182000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCIDyz4H1pvMCFQAAAAAdAAAAABAD)
 
-1. Numbered
-2. List
+If you think Drake is better I suggest you visit the following link:
 
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/pranilarsid/firstwebsite/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+[Link](https://www.psychologytoday.com/us/therapists)
